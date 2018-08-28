@@ -1,4 +1,4 @@
-##Ingredients
+## Ingredients
 1 package of tofu (18 ounces: 510 grams)
 3 tablespoons cooking oil
 1 teaspoon sesame oil
