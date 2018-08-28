@@ -13,3 +13,5 @@ For the sauce, mix in a small bowl:
 1 teaspoon sugar
 1 tablespoon hot pepper flakes
 ½ cup water
+Put in saucepan over medium high heat
+Don't burn yourself!
